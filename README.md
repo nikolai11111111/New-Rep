@@ -1,0 +1,1 @@
+sovershenno s etim soglasen
